@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @SeeTai
+- 🖤 my discord https://discord.com/users/987638561509630042
